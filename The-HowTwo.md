@@ -6,12 +6,12 @@
 
 ## Check yourself.
  * Be honest to yourself and to the others.
- * Pay your dues. Another borrowing won't patch the dept black-hole. Perhaps seek some professional finantial advisor before it is too late!
+ * Pay your dues. Another borrowing won't patch the dept black-hole. Perhaps seek some professional financial advisor before it is too late!
  * Check your body and posture. Are you healthy? Are you overweight or does some part of you look weak? You should fix yourself.
- * Does your dress represent who you really are or at least who you want to be? Is it intentional that the top doesn't match the bottom or left the right? Symetries matter man!
+ * Does your dress represent who you really are or at least who you want to be? Is it intentional that the top doesn't match the bottom or left the right? Symmetries matter man!
  * Are you in a good mood? Don't pull the girl down with you.
  * Check your shoes as well. Are they dirty? Girls are chcecking the shoes for some reason.
- * Do you smell without a deodorant or antiperspirant? People tend to not smell themselves. If your diet is spicy or perhaps unbalanced, you may need to spice you up wit some cologne or in worst case as spray.
+ * Do you smell without a deodorant or antiperspirant? People tend to not smell themselves. If your diet is spicy or perhaps unbalanced, you may need to spice you up wit some cologne or in worst case a spray.
 
 ## Check the girl
  * Does she look healthy to you? If not, can you help her? If yes, it is a plus for you!
@@ -33,6 +33,5 @@
 
 # References
   * How to talk to girls podcast: https://podcasts.apple.com/us/podcast/how-to-talk-to-girls-podcast/id952917216
-
 
 <a rel="license" href="http://creativecommons.org/licenses/by-sa/4.0/"><img alt="Licence Creative Commons" style="border-width:0" src="https://i.creativecommons.org/l/by-sa/4.0/88x31.png" /></a><br />Toto dílo podléhá licenci <a rel="license" href="http://creativecommons.org/licenses/by-sa/4.0/">Creative Commons Uveďte původ-Zachovejte licenci 4.0 Mezinárodní License</a>.
