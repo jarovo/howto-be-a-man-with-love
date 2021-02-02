@@ -29,8 +29,8 @@
 
 ## Take action!
  * This is important! You need to make the move. Man has to take action. That is what is atractive on him.
- * Approach the woman with your chin up and open posture.
- * Start the conversation. Keep conversation going but let the girl talk. Girls like to talk. Listen what she says so you can react. Don't over-argue.
+ * Learn how to flirt. Google is your friend.
+ * Start the conversation. Keep conversation going but let the girl talk. Don't interrupt. Girls like to talk. Listen what she says so you can react. Don't over-argue.
  * Take responsibility for your actions.
  
 ## Improve yourself.
