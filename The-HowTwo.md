@@ -27,6 +27,12 @@
  * Start dancing. It will help you with many things written in here.
  * Start or be part of some active healthy community. Again something that will help.
 
+## Take action!
+ * This is important! You need to make the move. Man has to take action. That is what is atractive on him.
+ * Approach the woman with your chin up and open posture.
+ * Start the conversation. Keep conversation going but let the girl talk. Girls like to talk. Listen what she says so you can react. Don't over-argue.
+ * Take responsibility for your actions.
+ 
 ## Improve yourself.
  * If you are a mess or missed a point, I bet you can make this world better. Just do it and then please CHECK FOR MISTAKES, COMMIT, SHARE and LEARN
  * Repeat from the begining and you will learn something (:
