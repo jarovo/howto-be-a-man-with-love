@@ -10,7 +10,7 @@
  * Check your body and posture. Are you healthy? Are you overweight or does some part of you look weak? You should fix yourself.
  * Does your dress represent who you really are or at least who you want to be? Is it intentional that the top doesn't match the bottom or left the right? Symmetries matter man!
  * Are you in a good mood? Don't pull the girl down with you.
- * Check your shoes as well. Are they dirty? Girls are chcecking the shoes for some reason.
+ * Check your shoes as well. Are they dirty? Girls are checking the shoes for some reason.
  * Do you smell without a deodorant or antiperspirant? People tend to not smell themselves. If your diet is spicy or perhaps unbalanced, you may need to spice you up wit some cologne or in worst case a spray.
 
 ## Check the girl
