@@ -32,3 +32,6 @@
  * Repeat from the begining and you will learn something (:
 
 <a rel="license" href="http://creativecommons.org/licenses/by-sa/4.0/"><img alt="Licence Creative Commons" style="border-width:0" src="https://i.creativecommons.org/l/by-sa/4.0/88x31.png" /></a><br />Toto dílo podléhá licenci <a rel="license" href="http://creativecommons.org/licenses/by-sa/4.0/">Creative Commons Uveďte původ-Zachovejte licenci 4.0 Mezinárodní License</a>.
+
+# References
+  * How to talk to girls podcast: https://podcasts.apple.com/us/podcast/how-to-talk-to-girls-podcast/id952917216
