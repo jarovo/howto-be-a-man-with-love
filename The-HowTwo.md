@@ -6,7 +6,7 @@
 
 ## Check yourself.
  * Be honest to yourself and to the others.
- * Pay your dues. Another borrowing won't patch the dept black-hole. Perhaps seek some professional financial advisor before it is too late!
+ * Pay your dues. Another borrowing won't patch the dept black-hole. Perhaps seek some professional advisor before it is too late!
  * Check your body and posture. Are you healthy? Are you overweight or does some part of you look weak? You should fix yourself.
  * Does your dress represent who you really are or at least who you want to be? Is it intentional that the top doesn't match the bottom or left the right? Symmetries matter man!
  * Are you in a good mood? Don't pull the girl down with you.
