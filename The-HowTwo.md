@@ -1,7 +1,7 @@
 # How to approach females as good person in hopefully good order
 
 ## Check your room
- * Does it look like living space or a pile of old mess or is it a dark cave with mould? Is that where the girl want to flourish? Will she want to return to that place? If not, take some time to clean that up. And spice it up with some flower perhaps.
+ * Does it look like living space or a pile of old mess or is it a dark cave with mould or a trash bag? Is that where the girl want to flourish? Will she want to return to that place? If not, take some time to clean that up. And spice it up with some flower perhaps.
  * Do you tend to leave mess on public places? If so then fix it as soon as possible.
 
 ## Check yourself.
