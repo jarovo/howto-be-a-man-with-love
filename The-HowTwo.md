@@ -21,8 +21,8 @@
   * Is she a good match? You did look on yourself did you? So think about it.
 
 ## Do you have something to offer?
- * Again, are you in good mood? If not practice with sister, mamas, grandmamas, aunts, other random people. Don't worry, you can do it.
- * Start a conversation with her. It is hard to start a converation when you are not used to that. Practice with your friends, old ladies, mamas, sisters. You can do it!
+ * Are you in good mood? 
+ * Start a conversation with her. It can be hard to start a converation when you are not used to that. Practice with sister, mamas, grandmamas, aunts, other random people. Don't worry... You can do it! Just pay atention to what the other person says and react on that. Try whether you can say "Yes, and ..." see where it leads you.
  * Start doing something for the others so you have something to talk about.
  * Start dancing. It will help you with many things written in here.
  * Start or be part of some active healthy community. Again something that will help.
